@@ -1,5 +1,5 @@
 - 👋 Assalamu Alaikum, I’m @Yousuf9963
-- 👀 I’m interested in Programming, Coding,Hacking, anauthorised accesses, IT,Computer Science,kalinux, Termux,Windows,MacOS 
+- 👀 I’m interested in Programming, Coding,Hacking,unauthorised accesses, IT,Computer Science,kalinux, Termux,Windows,MacOS 
 - 🌱 I’m currently learning 300 Programming Languages.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...😃😃😃

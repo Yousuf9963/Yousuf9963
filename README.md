@@ -1,6 +1,6 @@
 - 👋 Assalamu Alaikum, I’m @Yousuf9963
-- 👀 I’m interested in Programming, Coding,Hacking,unauthorised accesses, IT,Computer Science,kalinux, Termux,Windows,MacOS 
-- 🌱 I’m currently learning 300 Programming Languages.
+- 👀 I’m interested in Programming, Coding,Hacking,unauthorised accesses, IT,Computer Science,kalinux, Termux,Windows,MacOS, Security All Linux Distribution,Ethical Hacking,Bank Hacking,satellite Hacking,Building OS Bypass VPN Cloudflare any Protection And many more..
+- 🌱 I’m currently learning 700 Programming Languages.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...😃😃😃
 
@@ -14,6 +14,6 @@ Expect us.
 
 Nobody is attacking space.
 
-We're attaching billionaires who amased vast fortunes on the backs of an exploited work force using those fortunes to hold an extravagant dick measuring contest instead of doing anything remotely helpful with their ill gotten gains.
+We're attacking billionaires who amased vast fortunes on the backs of an exploited work force using those fortunes to hold an extravagant dick measuring contest instead of doing anything remotely helpful with their ill gotten gains.
 
 E xpect us....

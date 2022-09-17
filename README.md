@@ -1,5 +1,6 @@
-- 👋 Assalamu Alaikum, I’m @Yousuf9963
-- 👀 I’m interested in Programming, Coding, Hacking, unauthorised accesses, IT, Computer Science, kalinux, Termux, Windows, MacOS, Security, All Linux Distribution, Ethical Hacking, Bank Hacking,Satellite Hacking, Building OS, Bypass VPN, Cloudflare, or any Protection Software Developer, Black Hat Hacker, Grey,Red, And many more..
+- 👋 Assalamu Alaikum, Brothers And Sisters.
+-  I’m @Yousuf Shafi'i Muhammad.
+- 👀 I’m interested in Programming, Coding, Hacking, unauthorised accesses, IT, Computer Science, kalinux, Termux, Windows, MacOS, Security, All Linux Distribution, Ethical Hacking, Bank Hacking,Satellite Hacking, Building OS, Bypass VPN, Virus Programmer, Ransomware Programmer, Website Developer, anti Ransomware Programmer, AntiVirus Programmer, Bypass Cloudflare, for Ethical or any Protection Software Developer, Black Hat Hacker, Grey,Red, And many more..
 - 🌱 I’m currently learning 700 Programming Languages.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...😃😃😃

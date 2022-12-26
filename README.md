@@ -3,7 +3,7 @@
 - 👀 I’m interested in Programming, Data Science, Machine Learning, Coding, Hacking, Unauthorised Accesses, IT, Computer Science, kalinux, Termux, Windows, MacOS, Security, All Linux Distribution, Ethical Hacking, Bank Hacking, Satellite Hacking, Building OS, Bypass VPN, Bypass antiVirus, Networker, Virus Programmer, Ransomware Programmer, Website Developer, anti Ransomware Programmer, AntiVirus Programmer, Bypass Cloudflare, for Ethical or any Protection, Software Developer, Black Hat Hacker, Grey, Red, And many more..
 - 🌱 I’m currently learning 700 Programming Languages.
 - 💞️ I’m looking to collaborate on You...
-- 📫 How to reach me:yousufshafii20@gmail.com
+- 📫 How to reach me i am on Telegram: https://t.me/Juniorprogrammerboy
 
 <!---
 Yousuf9963/Yousuf9963 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

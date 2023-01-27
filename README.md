@@ -25,5 +25,5 @@ What is PHP ?
 
 PHP is a general-purpose scripting language geared toward web development. It was originally created by Danish-Canadian programmer Rasmus Lerdorf in 1993. The PHP reference implementation is now produced by The PHP Group
  
- If you want to Donate Kindly click here Thank you.:
+Support me, Donation Thank you.:
  https://www.buymeacoffee.com/junioprogrammer
